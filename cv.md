@@ -1,7 +1,7 @@
 # Val Krasutskaya
 
 ## Contacts
-+375295020193
+*+375295020193*
 
 ## Skills
 <ul>
